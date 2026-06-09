@@ -76,7 +76,7 @@ Forecast admission patterns to optimize staffing.
 Fatma Begum Saifuddin Ansari
 
 **LinkedIn**:
-https://www.linkedin.com/in/fatma-ansari-46607b251
+https://www.linkedin.com/in/fatma-ansari-alif
 
 **Email**:
 fatmaansarisaif@gmail.com
